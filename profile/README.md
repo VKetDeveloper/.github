@@ -1,4 +1,4 @@
-![burner_git](https://github.com/user-attachments/assets/2a10f1ed-f5b0-48a3-976a-ad6e036094be)
+
 
 ![](https://img.shields.io/badge/Vket%20REAL%202025%20Summer-staff-blue?style=for-the-badge)  
 ![](https://img.shields.io/badge/Vket%20REAL%202024%20Winter-staff-pink?style=for-the-badge)  

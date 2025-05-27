@@ -3,9 +3,9 @@
 ![](https://img.shields.io/badge/Vket%20REAL%202025%20Summer-staff-blue?style=for-the-badge)  
 ![](https://img.shields.io/badge/Vket%20REAL%202024%20Winter-staff-pink?style=for-the-badge)  
 
-# Vket REAL 有志開発チームへようこそ。
+# VketReal 有志開発チームへようこそ。
 > [!NOTE]
-> 興味がありますか？[Vket REALの有志スタッフの一員](https://x.com/VketReal/status/1914911614685601927)となって、あなたの力を発揮してください。
+> 興味がありますか？[VketRealの有志スタッフの一員](https://x.com/VketReal/status/1914911614685601927)となって、あなたの力を発揮してください。
 
 ## あなたの技術が未来をつくる
 ユーザーもスタッフも、Vketに関わるすべての人が気持ちよく活動場所であること。  

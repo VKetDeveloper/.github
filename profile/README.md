@@ -1,4 +1,5 @@
 
+![B7EE2CB8-A721-4A52-91CC-58D5C23E6B86](https://github.com/user-attachments/assets/4a2a2e7b-6fc5-4573-80f3-da8fa027f3dc)
 
 ![](https://img.shields.io/badge/Vket%20REAL%202025%20Summer-staff-blue?style=for-the-badge)  
 ![](https://img.shields.io/badge/Vket%20REAL%202024%20Winter-staff-pink?style=for-the-badge)  
